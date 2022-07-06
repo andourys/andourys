@@ -12,7 +12,7 @@ I'm andy, also known as **andyaspect/AnimatedAspect** on the online world.
 
 # 🤫 I’m currently working on ...
 
-- @ Voidpoint • Founder, Tech, Design and Community Management
---🔫 Voidpoint: Revolvia 
+- #### @ Voidpoint • Founder, Tech, Design and Community Management
+- - 🔫 Voidpoint: Revolvia 
 
-- @ Emotes CO. • Tech and Community Management
+- #### @ Emotes CO. • Tech and Community Management
