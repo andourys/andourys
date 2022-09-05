@@ -1,6 +1,6 @@
 ### Hi there! 👋
 
-I'm andy, also known as **undefinedaspect/andyaspect/AnimatedAspect** on the online world.
+I'm andy, also known as **andyaspect/AnimatedAspect** on the online world.
 - If you have the interest in contacting me, feel free to reach out on **my socials** or on **as@omg.lol** 😊
 - Pronouns are he/they! 🙂
 
